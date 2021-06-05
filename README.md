@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Paulina Verdugo Roa
 - 👀 I’m interested in science, enviroment, veganism, astronomy, programming, design 
-- 🌱 I’m currently learning all kind of things, link programming
+- 🌱 I’m currently learning all kind of things, like programming
 - 💞️ I love animals
 - 📫 How to reach me: You can find me in: https://www.linkedin.com/in/paulina-verdugo-05b5801a0/
 
